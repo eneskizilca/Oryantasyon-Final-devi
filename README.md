@@ -1,3 +1,3 @@
-# Oryantasyon-Final-devi
+# Oryantasyon-Final-Ödevi
 Merhaba açıklama
 www.youtube.com
